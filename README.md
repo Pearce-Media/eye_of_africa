@@ -1,1 +1,1 @@
-# eye_of_affrica
+# eye_of_africa
